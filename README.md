@@ -1,3 +1,6 @@
+![Github](https://user-images.githubusercontent.com/108947308/178036398-9c29b24e-cebd-42de-84e8-b2f6ed8a118c.jpg)
+
+
 ## L20 Comunicações
 
 A L20 Comunicações nasceu com o propósito de ajudar a sua empresa a vender mais. Pensando nisso criamos soluções capazes de atrair novos clientes, aumentar vendas e reforçar a presença da marca no universo digital.
